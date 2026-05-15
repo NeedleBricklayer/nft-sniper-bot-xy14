@@ -1,4 +1,4 @@
-# 
+# nft sniper bot custom Bot - liquidity-analysis and multi-wallet-support is the best nft sniper bot, featuring liquidity-analysis and multi-wallet-support. Fast, smart, and
 
 
 
